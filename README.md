@@ -2,9 +2,9 @@ GroundStudio Jade U1
 ====================================
 ![JadeU1](https://github.com/GroundStudio/Jade_U1/assets/77836107/49564e54-6871-4f1a-a305-aa3e0efdfbfd)
 
-Get it from [ardushop.ro](https://ardushop.ro/ro/118-groundstudio)
+Get it from [ardushop.ro](https://ardushop.ro/en/groundstudio/1637-groundstudio-jade-u1-6427854024602.html)
 
-Explore all the GroundStudio products at [GroundStudio.ro](https://groundstudio.ro/)
+Explore all the GroundStudio products at [ardushop.ro](https://ardushop.ro/en/37-groundstudio)
 
 Description
 -------------------
